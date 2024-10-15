@@ -1,1 +1,1 @@
-# Brick
+We developed eco-friendly, high-strength bricks using waste materials like fly ash, pond ash, red mud, and plastic, offering a sustainable alternative to traditional bricks. These waste-based bricks promote recyclability, cost-effectiveness, and durability. Fire test results: Red Mud Brick (non-combustible, >1000°C), Plastic Brick (PP/PET ignites at 250-300°C), Fly Ash Brick (non-combustible, up to 1000°C), Pond Ash Brick (non-combustible), Traditional Brick (non-combustible, up to 1200°C).# Brick
